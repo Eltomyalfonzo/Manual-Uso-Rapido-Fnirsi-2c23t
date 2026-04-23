@@ -21,6 +21,19 @@ Con el arito de tu novia o algo parecido, introducí el palito en el agujerito q
 
 Después de eso, hacé las cosas bien y **debería funcionar**.
 
+Adjunto Firmware:
+
+v2.0.2 (V1.0):
+
+https://www.mediafire.com/file/mwufzhwsu490obf/F2C23T-EN-V2.0.2.bin/file
+
+v2.1.0 (V2.0)(El mas Fachero):
+
+https://www.mediafire.com/file/8ad21h7iwjl2nce/F2C23T-GW-EN_V2.1.0.bin/file
+
+Te dejo mi numero: 3564-622768
+Y el de los Chinchulanchas:+86 189 2460 7527 (Los chinos duermen aunque no paresca y tienen otro uso horario, tenelo en cuenta)
+
 ---
 
 **PD:** No cambies el fondo.
